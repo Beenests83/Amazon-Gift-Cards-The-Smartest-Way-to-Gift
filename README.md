@@ -11,5 +11,5 @@ For businesses Amazon Gift Cards are an excellent way to recognize employees or 
 
 If you want to make gifting stress free and meaningful Amazon Gift Cards are one of the best solutions available. They combine thoughtfulness with convenience and ensure that your gift will always be valued.
 
-You can explore more and get your Amazon Gift Card at [cardvaultusa.xyz/amazon-gift-card-2025]
-<img width="448" height="31" alt="image" src="https://github.com/user-attachments/assets/c5486500-a84f-4d2f-a9da-589a0259e1f0" />
+You can explore more and get your Amazon Gift Card at (cardvaultusa.xyz/amazon-gift-card-2025)
+
