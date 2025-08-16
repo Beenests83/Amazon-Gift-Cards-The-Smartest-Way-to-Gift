@@ -1,4 +1,3 @@
-
 Amazon Gift Cards are one of the simplest and most flexible ways to share value with friends family or even team members. Instead of worrying about choosing the right product you can give the freedom of choice. With millions of items available on Amazon the recipient can decide what fits them best.
 
 Amazon Gift Cards are easy to buy and simple to send. They are perfect for birthdays weddings holidays or even corporate rewards. They can be used across millions of products on Amazon from electronics and clothing to books and groceries. The cards come in different formats whether digital printable or physical and they give you flexibility to choose the value you want to gift. In most regions they do not expire which means the recipient can take their time to use them.
