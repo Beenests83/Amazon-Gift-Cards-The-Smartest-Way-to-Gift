@@ -1,7 +1,7 @@
 
 Amazon Gift Cards are one of the simplest and most flexible ways to share value with friends family or even team members. Instead of worrying about choosing the right product you can give the freedom of choice. With millions of items available on Amazon the recipient can decide what fits them best.
 
-[Get Your Amazon Gift Card Here](cardvaultusa.xyz/amazon-gift-card-2025)
+[Get Your Amazon Gift Card Here](https://cardvaultusa.xyz/amazon-gift-card-2025)
 
 
 Amazon Gift Cards are easy to buy and simple to send. They are perfect for birthdays weddings holidays or even corporate rewards. They can be used across millions of products on Amazon from electronics and clothing to books and groceries. The cards come in different formats whether digital printable or physical and they give you flexibility to choose the value you want to gift. In most regions they do not expire which means the recipient can take their time to use them.
@@ -14,5 +14,5 @@ For businesses Amazon Gift Cards are an excellent way to recognize employees or 
 
 If you want to make gifting stress free and meaningful Amazon Gift Cards are one of the best solutions available. They combine thoughtfulness with convenience and ensure that your gift will always be valued.
 
-[Get Your Amazon Gift Card Here](cardvaultusa.xyz/amazon-gift-card-2025)
+[Get Your Amazon Gift Card Here](https://cardvaultusa.xyz/amazon-gift-card-2025)
 
